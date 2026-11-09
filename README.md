@@ -227,4 +227,4 @@ Nik Collection is offered as a full free version with all features and updates i
 Elevate your photo editing experience today with **Nik Collection**! Download now and unlock your creative potential!
 
 ---
-**Last updated:** 2026-11-08 21:36:34 UTC
+**Last updated:** 2026-11-09 01:23:15 UTC
